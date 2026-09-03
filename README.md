@@ -19,3 +19,10 @@ Every snowflake's different just like you
 Different shape and different size
 Like every star up in the sky
 Every snowflake's different just like you
+marvel rivals
+Database 1
+watashi wa
+
+# Tyler
+
+oi oi oi baaakaa!! :3
